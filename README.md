@@ -1,1 +1,1 @@
-# My (Blog)[https://realburt41.top] Remark
+# My [blog](https://realburt41.top)] remark
